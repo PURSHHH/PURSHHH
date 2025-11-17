@@ -27,3 +27,5 @@ FANDOMS I QUITED!
 WHERE TO FIND ME!
 
 --> Above Bakery, Inside bakery, Market place or with my friends
+
+<img width="736" height="933" alt="image" src="https://github.com/user-attachments/assets/6d765f11-4a8f-4a42-be80-7909ebcc4974" />
