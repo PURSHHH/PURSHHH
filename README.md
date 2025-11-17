@@ -1,3 +1,5 @@
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/73752822-208e-4c44-9f93-bbf046c46b03" />
+
 ME!
 
 My name is Julia/Thao but i go by Thao (i dont mind which one you use aslong its Thao or Julia). Im not a social person maybe a bit but not social. Im a swimmer, drawer and a book reader. I read manhwa, donghua, mangas and horror/scary storries. Recommend me some books if you have. I ussually sit alone and im shy to int so plz int with me.
