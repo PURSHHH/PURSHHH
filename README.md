@@ -11,7 +11,7 @@ Proshipper, Mean people, People under 10 that ragebaits, 20+ y/o people, -10 y/o
 -----
 LIKE/INT!
 
-Dark red/wine red. Sleep, Game rblx w friends, my wife, books
+Dark red/wine red. Sleep, Game rblx w friends, my wife, books, C+H, Funny people haha
 
 -----
 FANDOMS IM IN!
