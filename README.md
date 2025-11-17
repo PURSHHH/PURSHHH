@@ -1,16 +1,24 @@
-## Hi there 👋
+MEE! 
 
-<!--
-**PURSHHH/PURSHHH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My name is Julia/Thao but i go by Thao (i dont mind which one you use aslong its Thao or Julia). Im not a social person maybe a bit but not social. Im a swimmer, drawer and a book reader. I read manhwa, donghua, mangas and horror/scary storries. Recommend me some books if you have. I ussually sit alone and im shy to int so plz int with me.
+Im under 15 and yes im young sorry. I only use this GITHUB for ponytown nothing else. My B-Day is 25th december, yes im so christmas child. Im a campricorn and a Omega😨 (Took one of those "Are you a Beta, Omega or Alpha quiz) Pronouns: My pronouns is She/any (not trans) 99% of roblox players calls me "HE" but im a "SHE", "THEY/THEM" works too.
+-----
+DISLIKE/DNI!
 
-Here are some ideas to get you started:
+Proshipper, Mean people, People under 10 that ragebaits, 20+ y/o people, -10 y/o people. Flirting/rizz unless its my wife
+-----
+LIKE/INT!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Dark red/wine red. Sleep, Game rblx w friends, my wife, books
+-----
+FANDOMS IM IN!
+
+--> TGCF, Transformers (very peak), TSHD, ORV, DOD, DUNE
+-----
+FANDOMS I QUITED!
+
+--> Forsaken(bc of drama), BSD, MOD (Master Of Diabolism)/ THE UNTAMED, KNY, And others i dont remember since ive been into many fandoms •–•
+-----
+WHERE TO FIND ME!
+
+--> Above Bakery, Inside bakery, Market place or with my friends
