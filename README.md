@@ -28,5 +28,7 @@ WHERE TO FIND ME!
 
 --> Above Bakery, Inside bakery, Market place or with my friends
 
-<img width="112" height="112" alt="image" src="https://github.com/user-attachments/assets/035f11f0-bc34-4899-9f3c-f764f885422e" />
+<img width="736" height="776" alt="image" src="https://github.com/user-attachments/assets/e0b673c2-6e7d-4046-8d63-8cc0a4b1ce6c" />
+
+Art by: wersnill on Pintrest
 
