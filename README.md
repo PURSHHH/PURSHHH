@@ -1,7 +1,7 @@
 ME!
 
 My name is Julia/Thao but i go by Thao (i dont mind which one you use aslong its Thao or Julia). Im not a social person maybe a bit but not social. Im a swimmer, drawer and a book reader. I read manhwa, donghua, mangas and horror/scary storries. Recommend me some books if you have. I ussually sit alone and im shy to int so plz int with me.
-Im under 15 and yes im young sorry. I only use this GITHUB for ponytown nothing else. My B-Day is 25th december, yes im so christmas child. Im a campricorn and a Omega😨 (Took one of those "Are you a Beta, Omega or Alpha quiz) Pronouns: My pronouns is She/any (not trans) 99% of roblox players calls me "HE" but im a "SHE", "THEY/THEM" works too.
+Im under 15 and yes im young sorry. I only use this GITHUB for ponytown nothing else. My B-Day is 25th december, yes im so christmas child. Im a capricorn and a Omega😨 (Took one of those "Are you a Beta, Omega or Alpha quiz) Pronouns: My pronouns is She/any (not trans) 99% of roblox players calls me "HE" but im a "SHE", "THEY/THEM" works too.
 
 -----
 DISLIKE/DNI!
