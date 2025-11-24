@@ -1,3 +1,7 @@
+
+<img width="636" height="383" alt="image" src="https://github.com/user-attachments/assets/1350ffb3-a8e9-482d-a82f-4c487b177f6e" />
+
+
 ME!
 
 My name is Julia/Thao but i go by Thao (i dont mind which one you use aslong its Thao or Julia). Im not a social person maybe a bit but not social. Im a swimmer, drawer and a book reader. I read manhwa, donghua, mangas and horror/scary storries. Recommend me some books if you have. I ussually sit alone and im shy to int so plz int with me.
@@ -28,7 +32,5 @@ WHERE TO FIND ME!
 
 --> Above Bakery, Inside bakery, Market place or with my friends
 
-<img width="736" height="776" alt="image" src="https://github.com/user-attachments/assets/e0b673c2-6e7d-4046-8d63-8cc0a4b1ce6c" />
-
-Art by: wersnill on Pintrest
+<img width="736" height="420" alt="image" src="https://github.com/user-attachments/assets/56871e6d-36e6-4da0-8c99-4673c7c19e78" />
 
