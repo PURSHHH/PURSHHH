@@ -20,12 +20,12 @@ Dark red/wine red. Sleep, Game rblx w friends, my wife, books, C+H, Funny people
 -----
 *FANDOMS IM IN!*
 
---> TGCF, Transformers (very peak), TSHD, ORV, DOD, DUNE
+--> TGCF, Transformers (very peak), G&B / GNB,  DOD, DUNE
 
 -----
 *FANDOMS I QUITED!*
 
---> Forsaken(bc of drama), BSD, MOD (Master Of Diabolism)/ THE UNTAMED, KNY, And others i dont remember since ive been into many fandoms •–•
+--> Forsaken(bc of drama), BSD, MOD (Master Of Diabolism)/ THE UNTAMED, KNY, ORV, TSHD, And others i dont remember since ive been into many fandoms •–•
 
 -----
 *WHERE TO FIND ME!*
