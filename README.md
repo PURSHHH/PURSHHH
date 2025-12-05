@@ -17,6 +17,11 @@ Proshipper, Mean people, People under 10 that ragebaits, 20+ y/o people, -10 y/o
 Dark red/wine red. Sleep, Game rblx w friends, my wife, books, C+H, History, ww1/2, Greek history, war, Funny people haha
 
 -----
+*BL I LIKE!*
+
+--> Sasaki to miyano, TGCF, Lost in the cloud, Nerd project, DON'T TOUCH THE POOCH/PUPPY!
+
+-----
 *FANDOMS IM IN!*
 
 --> TGCF, Transformers (very peak), G&B / GNB,  DOD, DUNE
