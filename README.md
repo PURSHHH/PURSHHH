@@ -9,11 +9,5 @@
                                         "I am forever your most devoted believer"
 
 
-
-
-                                                         DNI!
-
-                                                       Proship
-                                                   Disrespectful people
-                                                       Darkship
-                                                     Ragebait people
+                                                   "Gege!" - Hua cheng
+                                                 "San Lang!" - Xie lian
