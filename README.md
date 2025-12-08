@@ -7,3 +7,13 @@
                                                     "Your Highness"
 
                                         "I am forever your most devoted believer"
+
+
+
+
+                                                         DNI!
+
+                                                       Proship
+                                                   Disrespectful people
+                                                       Darkship
+                                                     Ragebait people
