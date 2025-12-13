@@ -14,10 +14,10 @@
 
  *Dislike / DNI*
 
- - proship
- - Darkship
- - Ragebaiter
- - Rude people
+ - *proship*
+ - *Darkship*
+ - *Ragebaiter*
+ - *Rude people*
 
 --- 
 
