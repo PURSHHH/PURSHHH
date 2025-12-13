@@ -2,17 +2,17 @@
 
 --- 
 
-*Like*
+*Like / INT*
 
-- Hetalia
-- TGCF
-- Mdzs
-- G&B / GNG
-- History
+- *Hetalia*
+- *TGCF*
+- *Mdzs*
+- *G&B / GNG*
+- *History*
 
  ---
 
- *Dislike*
+ *Dislike / DNI*
 
  - proship
  - Darkship
