@@ -1,16 +1,26 @@
+*Thao/Julia, prefer Thao*
 
+--- 
 
+*Like*
 
-<img width="1198" height="674" alt="image" src="https://github.com/user-attachments/assets/5a3c95df-df58-4467-8979-60599372db3f" />
+- Hetalia
+- TGCF
+- Mdzs
+- G&B / GNG
+- History
 
+ ---
 
+ *Dislike*
 
+ - proship
+ - Darkship
+ - Ragebaiter
+ - Rude people
 
-                                                     "Your highness"
+--- 
 
+*C+H allowed, I might be dry or rude when you talk with me but if i find you intresting i'll me talkaktive.*
+*Dont add me as friend unless i add you. If you send me a friend req i'll only accept if i enjoy talking to you*
 
-                              “If your dream is to save the common people, then my dream, is only you.”
-
-                                                      - Hua cheng
-
- 
