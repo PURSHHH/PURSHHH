@@ -1,30 +1,5 @@
-*Thao/Julia, prefer Thao*
+<img width="735" height="599" alt="image" src="https://github.com/user-attachments/assets/7861ad83-3930-4bf2-932c-20e89168b116" />
 
---- 
-
-*Like / INT*
-
-- *Hetalia*
-- *TGCF*
-- *Mdzs*
-- *G&B / GNG*
-- *History*
-
- ---
-
- *Dislike / DNI*
-
- - *proship*
- - *Darkship*
- - *Ragebaiter*
- - *Rude people*
-
---- 
-
-*C+H allowed, I might be dry or rude when you talk with me but if i find you intresting i'll be talkaktive.*
-*Dont add me as friend unless i add you. If you send me a friend req i'll only accept if i enjoy talking to you*
-
-<img width="736" height="528" alt="image" src="https://github.com/user-attachments/assets/316017a6-2485-4f36-9222-e33042723c1e" />
 
 
 
