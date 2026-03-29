@@ -15,7 +15,5 @@
 
 , This is only for Discord, Spacehey or pony town.
 
-https://pin.it/3yZRadMgr
-
-
+https://pin.it/3yZRadMgr<img width="735" height="588" alt="image" src="https://github.com/user-attachments/assets/c15e10c3-803c-449e-b89d-34b72bb7d02b" />
 
