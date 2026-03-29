@@ -1,19 +1,16 @@
-, Call me Alucard or Thao (Im fine with any of those two)
+, ᴄᴀʟʟ ᴍᴇ ᴀʟᴜᴄᴀʀᴅ ᴏʀ ᴛʜᴀᴏ (ɪᴍ ꜰɪɴᴇ ᴡɪᴛʜ ᴀɴʏ ᴏꜰ ᴛʜᴏꜱᴇ ᴛᴡᴏ)
 
-, My pronouns is She/her, They/Them if you dont know my gender. Any other pronouns are also okay since many
- people missgender me but if you know me i would prefer She/her, thank you.
+, ᴍʏ ᴘʀᴏɴᴏᴜɴꜱ ɪꜱ ꜱʜᴇ/ʜᴇʀ, ᴛʜᴇʏ/ᴛʜᴇᴍ ɪꜰ ʏᴏᴜ ᴅᴏɴᴛ ᴋɴᴏᴡ ᴍʏ ɢᴇɴᴅᴇʀ. ᴀɴʏ ᴏᴛʜᴇʀ ᴘʀᴏɴᴏᴜɴꜱ ᴀʀᴇ ᴀʟꜱᴏ ᴏᴋᴀʏ ꜱɪɴᴄᴇ ᴍᴀɴʏ ᴘᴇᴏᴘʟᴇ ᴍɪꜱꜱɢᴇɴᴅᴇʀ ᴍᴇ ʙᴜᴛ ɪꜰ ʏᴏᴜ ᴋɴᴏᴡ ᴍᴇ ɪ ᴡᴏᴜʟᴅ ᴘʀᴇꜰᴇʀ ꜱʜᴇ/ʜᴇʀ, ᴛʜᴀɴᴋ ʏᴏᴜ.
 
-, Im 13, People who are under 11 or over 19 please do not int if you're not someone who i feel comfortable with.
+, ɪᴍ 13, ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴀʀᴇ ᴜɴᴅᴇʀ 11 ᴏʀ ᴏᴠᴇʀ 19 ᴘʟᴇᴀꜱᴇ ᴅᴏ ɴᴏᴛ ɪɴᴛ ɪꜰ ʏᴏᴜ'ʀᴇ ɴᴏᴛ ꜱᴏᴍᴇᴏɴᴇ ᴡʜᴏ ɪ ꜰᴇᴇʟ ᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ᴡɪᴛʜ.
 
-, My birtday is 25 December and i share the same birthday as Michael kaiser(blue lock) and Viktor(Yuri on ice). Maybe more    character that share the same birtday but idk.
+, ᴍʏ ʙɪʀᴛᴅᴀʏ ɪꜱ 25 ᴅᴇᴄᴇᴍʙᴇʀ ᴀɴᴅ ɪ ꜱʜᴀʀᴇ ᴛʜᴇ ꜱᴀᴍᴇ ʙɪʀᴛʜᴅᴀʏ ᴀꜱ ᴍɪᴄʜᴀᴇʟ ᴋᴀɪꜱᴇʀ(ʙʟᴜᴇ ʟᴏᴄᴋ) ᴀɴᴅ ᴠɪᴋᴛᴏʀ(ʏᴜʀɪ ᴏɴ ɪᴄᴇ). ᴍᴀʏʙᴇ ᴍᴏʀᴇ ᴄʜᴀʀᴀᴄᴛᴇʀ ᴛʜᴀᴛ ꜱʜᴀʀᴇ ᴛʜᴇ ꜱᴀᴍᴇ ʙɪʀᴛᴅᴀʏ ʙᴜᴛ ɪᴅᴋ.
 
-, Fandoms im in are Castlevania, GNB/Guts and blackpowder, JJK, Hetalia, Eddsworld.
+, ꜰᴀɴᴅᴏᴍꜱ ɪᴍ ɪɴ ᴀʀᴇ ᴄᴀꜱᴛʟᴇᴠᴀɴɪᴀ, ɢɴʙ/ɢᴜᴛꜱ ᴀɴᴅ ʙʟᴀᴄᴋᴘᴏᴡᴅᴇʀ, ᴊᴊᴋ, ʜᴇᴛᴀʟɪᴀ, ᴇᴅᴅꜱᴡᴏʀʟᴅ.
 
-, Fave chacarter from different fandom. In Castlevania my favorite character are Alucart/Adrian Tepes and Trevor Belmont.
-  In GNB it's Barry, In JJk it's Megumi and Geto, In Hetalia it's Sweden and italy, in Eddsworld it's the four main but the 
-  one i love most is Tom, Also Paul.
+, ꜰᴀᴠᴇ ᴄʜᴀᴄᴀʀᴛᴇʀ ꜰʀᴏᴍ ᴅɪꜰꜰᴇʀᴇɴᴛ ꜰᴀɴᴅᴏᴍ. ɪɴ ᴄᴀꜱᴛʟᴇᴠᴀɴɪᴀ ᴍʏ ꜰᴀᴠᴏʀɪᴛᴇ ᴄʜᴀʀᴀᴄᴛᴇʀ ᴀʀᴇ ᴀʟᴜᴄᴀʀᴛ/ᴀᴅʀɪᴀɴ ᴛᴇᴘᴇꜱ ᴀɴᴅ ᴛʀᴇᴠᴏʀ ʙᴇʟᴍᴏɴᴛ. ɪɴ ɢɴʙ ɪᴛ'ꜱ ʙᴀʀʀʏ, ɪɴ ᴊᴊᴋ ɪᴛ'ꜱ ᴍᴇɢᴜᴍɪ ᴀɴᴅ ɢᴇᴛᴏ, ɪɴ ʜᴇᴛᴀʟɪᴀ ɪᴛ'ꜱ ꜱᴡᴇᴅᴇɴ ᴀɴᴅ ɪᴛᴀʟʏ, ɪɴ ᴇᴅᴅꜱᴡᴏʀʟᴅ ɪᴛ'ꜱ ᴛʜᴇ ꜰᴏᴜʀ ᴍᴀɪɴ ʙᴜᴛ ᴛʜᴇ ᴏɴᴇ ɪ ʟᴏᴠᴇ ᴍᴏꜱᴛ ɪꜱ ᴛᴏᴍ, ᴀʟꜱᴏ ᴘᴀᴜʟ.
 
-, This is only for Discord, Spacehey or pony town.
+, ᴛʜɪꜱ ɪꜱ ᴏɴʟʏ ꜰᴏʀ ᴅɪꜱᴄᴏʀᴅ, ꜱᴘᴀᴄᴇʜᴇʏ ᴏʀ ᴘᴏɴʏ ᴛᴏᴡɴ.
 
 
 <img width="735" height="588" alt="image" src="https://github.com/user-attachments/assets/fa7b811c-790c-4899-872a-5d72a75d007b" />
