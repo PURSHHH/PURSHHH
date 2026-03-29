@@ -1,4 +1,4 @@
-, Call me Alucard or Thao (Im fine with any or those two)
+, Call me Alucard or Thao (Im fine with any of those two)
 
 , My pronouns is She/her, They/Them if you dont know my gender. Any other pronouns are also okay since many
  people missgender me but if you know me i would prefer She/her, thank you.
