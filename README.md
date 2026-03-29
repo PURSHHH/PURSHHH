@@ -16,5 +16,6 @@
 , This is only for Discord, Spacehey or pony town.
 
 
-width="735" height="588" alt="image" src="https://github.com/user-attachments/assets/c15e10c3-803c-449e-b89d-34b72bb7d02b" />
+<img width="735" height="588" alt="image" src="https://github.com/user-attachments/assets/fa7b811c-790c-4899-872a-5d72a75d007b" />
+
 
