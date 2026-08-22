@@ -22,7 +22,7 @@ How to spot me in pony town! (one i use most):
 3rd pic pony name: Following cool pony
 
 
-Where to spot me!: Above bakery or with friends!
+Where to spot me!: Above bakery, with friends! Or going around to follow people on GH...
 
 
 
