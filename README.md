@@ -18,13 +18,21 @@
 
 How to spot me in pony town! (one i use most): 
 
-<img width="106" height="100" alt="image" src="https://github.com/user-attachments/assets/a8a32641-856a-41fc-bdb4-aa1f1e0a8a34" />       <img width="106" height="100" alt="image" src="https://github.com/user-attachments/assets/51982203-ce08-422a-92cc-10155bae1e7f" />             <img width="106" height="100" alt="image" src="https://github.com/user-attachments/assets/64f1cb8a-e5d0-40f8-a1c0-89ea76b72bbb" />
+ <img width="106" height="100" alt="image" src="https://github.com/user-attachments/assets/51982203-ce08-422a-92cc-10155bae1e7f" />   
 
-1st pic pony name: Blue Sephiroth
 
-2nd pic pony name: I speak swedish or Alucard
 
-3rd pic pony name: Following cool pony
+ <img width="106" height="100" alt="image" src="https://github.com/user-attachments/assets/96524f57-5901-49b7-af5e-5fe103c182ec" />
+
+
+1st pic pony name: I speak swedish or Alucard
+
+2nd pic pony name: Gale Cleven
+
+3rd pic pony name: New style Mequot
+
+
+
 
 
 Where to spot me!: Above bakery, with friends! Or going around to follow people on GH...
