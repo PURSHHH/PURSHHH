@@ -32,7 +32,7 @@ How to spot me in pony town! (one i use most):
 
 3rd pic pony name: New style Mequot
 
-
+(Or Any pony with my github. Main one)
 
 
 
