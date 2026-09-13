@@ -36,7 +36,7 @@ How to spot me in pony town! (one i use most):
 
 
 
-Where to spot me!: Above bakery, with friends! Or going around to follow people on GH...
+Where to spot me!: Above bakery, CH/CB / Transformers area, with friends! Or going around to follow people on GH...
 
 
 
