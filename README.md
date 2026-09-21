@@ -14,8 +14,11 @@
 
 How to spot me in pony town!: 
 
- Above bakery, CH/CB / Transformers area, with friends! Or going around to follow people on GH...
+ <img width="990" height="939" alt="image" src="https://github.com/user-attachments/assets/b3cf4125-0436-4e8a-91c4-0d13d9ae7f2f" />
 
+Yellow dot: Me
+
+Blue circle: Where im often at
  
 
 <img src="https://wilardo.crd.co/assets/images/gallery22/92802f21_original.png?v=87117d4a"/>
