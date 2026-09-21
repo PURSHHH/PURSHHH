@@ -14,7 +14,7 @@
 
 How to spot me in pony town!: 
 
- <img width="990" height="939" alt="image" src="https://github.com/user-attachments/assets/b3cf4125-0436-4e8a-91c4-0d13d9ae7f2f" />
+ <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/b3cf4125-0436-4e8a-91c4-0d13d9ae7f2f" />
 
 Yellow dot: Me
 
